@@ -4,7 +4,7 @@
 
 Aiming in Sea of Thieves can be tough—whether it’s hitting rival crews with cannon fire or landing precise pistol shots. Sea of Thieves aimbot changes that instantly, giving you auto-lock accuracy and cheat menu tools to dominate every battle.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://sea-of-thieves-aimbot-hack.github.io/.github/)
 ---
 
 ## Product Description
